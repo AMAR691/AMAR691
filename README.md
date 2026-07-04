@@ -1,16 +1,28 @@
-## Hi there 👋
+# Hi, I'm Amar Shrivastava 👋
 
-<!--
-**AMAR691/AMAR691** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✈️ Travel Professional  
+🎥 Content Creator  
+🌿 Nature & Travel Enthusiast  
+🐶 Beagle Lover (Beyond)  
+📍 Chandigarh, India
 
-Here are some ideas to get you started:
+## About Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I love exploring beautiful destinations, creating travel content, sharing nature experiences, and documenting memorable journeys across India.
+
+## Connect With Me
+
+📺 YouTube: Amar Travel & Beyond  
+📸 Instagram: @amar_travel_beyond  
+📘 Facebook: MR.AMMU669
+
+## Interests
+
+- Travel & Tourism
+- Nature Exploration
+- Temple Darshan
+- Photography & Videography
+- Content Creation
+- AI & Technology
+
+> Collect moments, not things. ✨
